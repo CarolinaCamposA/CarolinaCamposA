@@ -1,4 +1,4 @@
-### Carolina Campos  👩🏻‍💻
+### I'm Carolina, I'm studying Information Systems  👩🏻‍💻
 <!--
 **CarolinaCamposA/CarolinaCamposA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
